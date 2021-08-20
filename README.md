@@ -1,1 +1,1 @@
-## Whittie Discord Bot
+## Whittie Discord Bot 📕📗
